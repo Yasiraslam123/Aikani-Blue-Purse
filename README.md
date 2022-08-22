@@ -1,0 +1,2 @@
+# Aikani-Blue-Purse
+Aikani Blue Purse Cash On Delivery Service available Price: 2900 PKR Aikani white and Blue Purse In Pakistan Brand Name: Aikani Stuff: Leather size: Height – 9″ Width – 13″ Depth – 3.5 Strap: Length shoulder strap 105cm-41.5″  #Aikani #AikaniBluePurse #AikaniwhiteandBluePurse #AikaniwhiteandBluePurseInPakistan Read More details link given below https://plazza.pk/product/aikani-blue-purse/
